@@ -10,7 +10,7 @@
 
 # What I Love About It
 ### “Anyone can wear the mask.”
-### This quote sums up the movie’s inspiring message — that anyone can be a hero, regardless of who they are.
+### This quote sums up the movie’s inspiring message that anyone can be a hero, regardless of who they are.
 
 # My Favorite Song from the Movie
 ### "Sunflower" by Post Malone & Swae Lee
